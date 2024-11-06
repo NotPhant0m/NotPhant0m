@@ -8,7 +8,7 @@
 
 <p align="center"
   
-[<img src="https://file.garden/ZwU3ZQOASG1BrPn0/calc2.png" width="250">](https://cichimi.straw.page/)
+[<img src="https://file.garden/ZwU3ZQOASG1BrPn0/calc2.png" width="250">](https://rentry.co/calch4ro)
 </p>
 
 ---
