@@ -1,5 +1,5 @@
 ---
-![](https://file.garden/ZwU3ZQOASG1BrPn0/cal3.png)
+![]()
 
 <p align="center"
 
